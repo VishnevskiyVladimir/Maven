@@ -28,3 +28,6 @@
 
 Lessons 26 .. 29 are in progress.
 
+https://www.youtube.com/watch?v=QpaWl2-BsMY&list=PLnh8EajVFTl5fusY9MRBEOoLjbv8Trms5
+
+
